@@ -7,4 +7,5 @@ Digital copy of the Tamil Bible Old Version published by Bible Society of India 
 
 சரி செய்த வசனங்கள்  : 
 
-ஏசாயா 45:11
+1) ஏசாயா 45:11 
+2) ரோமர் 10:17
