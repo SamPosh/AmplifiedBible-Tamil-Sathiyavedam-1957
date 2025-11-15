@@ -9,3 +9,4 @@ Digital copy of the Tamil Bible Old Version published by Bible Society of India 
 
 1) ஏசாயா 45:11 
 2) ரோமர் 10:17
+3) எபேசியர் 4:12
