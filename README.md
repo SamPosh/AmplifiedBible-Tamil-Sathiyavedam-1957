@@ -14,5 +14,9 @@ Digital copy of the Tamil Bible Old Version published by Bible Society of India 
    
 சரி செய்த வார்த்தைகள்   :
 
-மச்சம்  - மீன்
+மச்சம்  - மீன்,
 ஸ்திரீ  - பெண்
+
+அருஞ்சொற்கள் 
+https://truthintamil.com/tamil-bible/bible-dictionary.html
+
