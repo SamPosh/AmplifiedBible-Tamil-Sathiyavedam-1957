@@ -20,3 +20,4 @@ Digital copy of the Tamil Bible Old Version published by Bible Society of India 
 அருஞ்சொற்கள் 
 https://truthintamil.com/tamil-bible/bible-dictionary.html
 
+சில வசனங்களில் திருவிவிலியம் வசனங்களை உபயோகித்து உள்ளேன் . உதாரணம் : சங்கீதம் 35:19. 
